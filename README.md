@@ -1,4 +1,5 @@
-### Hi there 👋
+### Cosplayer | Idol | YouTuber
+Xiaoleng is your cutest idol.
 
 <!--
 **xia0leng/xia0leng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
