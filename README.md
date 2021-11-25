@@ -1,5 +1,6 @@
 ### Cosplayer | Idol | YouTuber
-Xiaoleng is your cutest idol.
+Purple is my favorite color and singing is my favorite thing.
+I'm ur cutest little purple devil so don't move ur sight away.
 
 <!--
 **xia0leng/xia0leng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
