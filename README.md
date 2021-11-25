@@ -1,5 +1,5 @@
 ### Cosplayer | Idol | YouTuber
-Purple is my favorite color and singing is my favorite thing.
+Purple is my favorite color and singing is my favorite thing. <br>
 I'm ur cutest little purple devil so don't move ur sight away.
 
 <!--
