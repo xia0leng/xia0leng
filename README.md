@@ -1,4 +1,4 @@
-### Cosplayer | Idol | VTuber
+### Idol | VTuber
 Purple is my favorite color and singing is my favorite thing. <br>
 I'm ur cutest little purple devil so don't move ur sight away.
 
