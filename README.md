@@ -1,5 +1,5 @@
-### Idol | VTuber
-I'm ur cutest little purple devil so don't move ur sight away.
+### Your cutest purple little devil.
+
 
 <!--
 **xia0leng/xia0leng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
