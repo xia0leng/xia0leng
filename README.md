@@ -1,4 +1,5 @@
-### Your cutest purple little devil.
+### Your cutest idol and purple little devil Xiaoleng
+你最可爱的紫色担当的新人偶像小冷
 
 
 <!--
