@@ -1,5 +1,10 @@
-### Your cutest idol and purple little devil Xiaoleng
-你最可爱的紫色担当的新人偶像小冷
+### 你最可爱的紫色担当的新人偶像小冷
+Your cutest idol and purple little devil Xiaoleng.
+
+做最可爱的声优偶像是小冷一直以来的目标
+I'm always dreaming to be the cutest seiyuu idol.
+
+By together our miracle comes true 🤗
 
 
 <!--
